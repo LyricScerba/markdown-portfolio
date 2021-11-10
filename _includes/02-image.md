@@ -1,0 +1,2 @@
+<img src="https://w7.pngwing.com/pngs/656/353/png-transparent-smiley-lol-emoticon-laughter-laughing-laughing-emoticon-illustration-miscellaneous-cartoon-stock-photography.png" alt="Smiley LOL Emoticon Laughter, laughing, laughing emoticon illustration,  cartoon, stock Photography, computer Icons png | PNGWing"/>![image](https://user-images.githubusercontent.com/93772849/141209647-ed55cfd0-d627-41ec-91a4-a1a5b2a0fb44.png)
+I inserted an image of a laughing emoji
